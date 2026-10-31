@@ -1,4 +1,4 @@
-# .: information 
+# .: information 𓏼⠀‵ ⊹ Genderfluid `Asexual ! ׄ .𓄼 #
 𓏼⠀‵ ⊹ DND DNC AFK ` DNIUF : W2I . IWC - SYS
 
 Shipped ( CV ) . strange
