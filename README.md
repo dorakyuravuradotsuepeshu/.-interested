@@ -1,5 +1,7 @@
 𓏼⠀‵ ⊹ DND DNC AFK ` DNIUF : W2I . IWC - SYS
-c+h ( sometimes . freely ) > If you don't come in and act in a disgusting way, I'll allow it 
+
+C+H ( sometimes . freely ) 
+-# If you don't come in and act in a disgusting way, I'll allow it 
 
 Shipped ( CV ) . strange . not canon . not popular 
 
