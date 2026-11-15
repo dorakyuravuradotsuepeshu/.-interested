@@ -1,1 +1,1 @@
-[picture](Tumblr_l_65053811824193.gif)
+[gif](Tumblr_l_65053811824193.gif)
